@@ -1,1 +1,0 @@
-# nasywatsabita.github.io
